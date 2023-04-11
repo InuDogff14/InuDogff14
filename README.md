@@ -1,4 +1,4 @@
-## 🐶 About Inudogff14
+## 🐶 About Inu
 Hi, I'm an System engineer and FinalFantasy XIV Player. 🤝
 
 ### 🌱 my skills
