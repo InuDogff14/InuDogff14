@@ -16,6 +16,8 @@ Hi, I'm an System engineer and FinalFantasy XIV Player. 🤝
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=Inudogff14&margin-w=5)](https://github.com/Inudogff14/)
 
+## 💓 I Like...
+Game🎮　(FinalFantasy XIV,League of Legends)
 ## 📨 Contact me.
 
 **[Twitter - @inu_FFXIV](https://twitter.com/inu_FFXIV)
