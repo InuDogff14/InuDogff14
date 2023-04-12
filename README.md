@@ -17,9 +17,9 @@ Hi, I'm an System engineer and FinalFantasy XIV Player. 🤝
 [![trophy](https://github-profile-trophy.vercel.app/?username=Inudogff14&margin-w=5)](https://github.com/Inudogff14/)
 
 ## 💓 I Like...
-Game🎮　(FinalFantasy XIV,League of Legends,Metroidvania...etc)
-Ramen🍜
-Movie(I Love Keanu Reeves💓)
+Game🎮　(FinalFantasy XIV,League of Legends,Metroidvania...etc)  
+Ramen🍜  
+Movie(I Love Keanu Reeves💓)  
 
 ## 📨 Contact me.
 
