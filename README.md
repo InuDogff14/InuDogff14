@@ -19,7 +19,7 @@ I aspire to become a data scientist in the future🖥️📊📈📉
 ## 💓 I Like...
 Game🎮　(FinalFantasy XIV,League of Legends,Metroidvania...etc)  
 Ramen🍜  
-Movie(I Love Keanu Reeves💓)  
+Movie(I Love Anne Hathaway & Keanu Reeves💓)  
 
 ## 📨 Contact me.
 
